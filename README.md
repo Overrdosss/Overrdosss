@@ -1,4 +1,6 @@
-#### <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/7fbb4eec-0249-40ca-892d-1079a56d5279" /> Trapped ? lol . Youre a dummy, silly . This is all there is .
+#### <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/7fbb4eec-0249-40ca-892d-1079a56d5279" /> Trapped?
+#### <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/7fbb4eec-0249-40ca-892d-1079a56d5279" /> lol 
+#### <img width="20" height="20" alt="Image" src="https://github.com/user-attachments/assets/7fbb4eec-0249-40ca-892d-1079a56d5279" />Youre a dummy, silly . This is all there is .
 ----------
 ## Stuffs :; ^__^
 Morri . ri or Ivan / fkin names !  Badthimgs Ivan and Andrem kin hi ilove them ok they me irl ok,,, 
